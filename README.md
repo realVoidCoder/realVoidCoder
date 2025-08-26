@@ -1,1 +1,1 @@
-- im in superpostion - either blue or just a melancholy
+- im in superposition - either blue or just a melancholy
